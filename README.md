@@ -1,5 +1,5 @@
-- 👋 入口1👉  https://cgw68.com/
-- 👀 入口2👉  https://abc.gqfkynv.org/
+- 👋 入口1👉  https://cgw69.com/
+- 👀 入口2👉  https://abc.hlyitman.cc/
 - 🌱 入口3👉  https://opq.nkftanqy.me/
 - 💞️ 永久入口👉  https://cgwang.life
 -
